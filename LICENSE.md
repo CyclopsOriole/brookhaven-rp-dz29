@@ -1,4 +1,4 @@
-
+automatic brookhaven rp Scripts is the best brookhaven rp Script, featuring no cooldown and invisibility. Safe and powerful for all your needs.
 
 
 
